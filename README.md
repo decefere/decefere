@@ -4,7 +4,7 @@ fjg- 👋 Hi, I’m @decefere
 - 💞️ I’m looking to collaborate on ...23
 - 
 - 📫 How to reach me ...d
-- 😄 Pronouns: ...
+- 😄 Pronouns: ...153
 - ⚡ Fun fact: ...1312
 
 <!---455

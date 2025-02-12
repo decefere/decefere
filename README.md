@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...23586996
 - 23596
 - 📫 How to reach me ...d89999669weeghnghsdf8656
-- 😄 Pronouns: ...15345677dsffdggdfzc
+- 😄 Pronouns: ...15345677dsffdggdfzcxcv
 - ⚡ Fun fact: ...131254052211gbfnbb
 dsf45sddsfsdf3554xcvvcxx
 <!---455sdffregfb

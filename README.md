@@ -2,7 +2,7 @@ ewqqewwqe5287fjg- 👋 Hi, I’m @decefere
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...vdfddd
 - 💞️ I’m looking to collaborate on ...23586996
-- 23596
+- 23596qwwq
 - 📫 How to reach me ...d89999669weeghnghsdf8656
 - 😄 Pronouns: ...15345677dsffdggdfzcxcv
 - ⚡ Fun fact: ...131254052211gbfnbb448

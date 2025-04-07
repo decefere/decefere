@@ -6,7 +6,7 @@ ewqqewwqe5287fjg- 👋 Hi, I’m @decefere
 - 📫 How to reach me ...d89999669weeghnghsdf8656efwgfbsss699
 - 
 - 😄 Pronouns: ...15345677dsffdggdfzcxcvdsfdfscxcxxfgdfgfd
-- ⚡ Fun fact: ...131254052211gbfnbb448dssasd
+- ⚡ Fun fact: ...131254052211gbfnbb448dssasddfd
 dsf45sddsfsdf3554xcvvcxx5252+fdddbgf
 <!---455sdffregfb96+996+v
 decefere/decefere is a ✨ special ✨ repository becausfdse its `RE45ADME.md` (this filekjk,j) appears on your GitHub prvdfsofile.

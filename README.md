@@ -5,7 +5,7 @@ ffdsdfdsewqqewwqe5287fjg- 👋 Hi, I’m @decefere
 - sdsd62zcxfdvfffhgfgfbgbf
 - 📫 How to reach me ...d89999669weeghnghsdf8656efwgfbsss699ewweww
 - weewffeew
-- 😄 Pronouns: ...15345677dsffdggdfzcxcvdsfdfscxcxxfgdfgfdvdfdfregrefd
+- 😄 Pronouns: ...15345677dsffdggdfzcxcvdsfdfscxcxxfgdfgfdvdfdfregrefdggre
 - ⚡ Fun fact: ...131254052211gbfnbb448dssasddfd
 dsf45sddsfsdf3554xcvvcxx5252+fdddbgfzxc
 <!---455sdffregfb96+996+v

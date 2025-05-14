@@ -3,7 +3,7 @@ ffdsdfdsewqqewwqe5287fjg- 👋 Hi, I’m @decefere
 - 🌱 I’m currently learning ...vdfddd
 - 💞️ I’m looking to collaborate on ...23586996xcvnhg265et,ui,uijhh
 - sdsd62zcxfdvfffhgfgfbgbf5252159
-- 📫 How to reach me ...d89999669weeghnghsdf8656efwgfbsss699ewwewwsss
+- 📫 How to reach me ...d89999669weeghnghsdf8656efwgfbsss699ewwewwssshngbv
 - weewffeewvbnvbvrtyterreeeghhjhghghg
 - 😄 Pronouns: ...15345677dsffdggdfzcxcvdsfdfscxcxxfgdfgfdvdfdfregrefdggre
 - ⚡ Fun fact: ...131254052211gbfnbb448dssasddfd

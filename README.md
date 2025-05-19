@@ -1,11 +1,11 @@
 ffdsdfdsewqqewwqe5287fjg- 👋 Hi, I’m @decefere
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...vdfddd
-- 💞️ I’m looking to collaborate on ...23586996xcvnhg265et,ui,uijhh
-- sdsd62zcxfdvfffhgfgfbgbf5252159
+- 💞️ I’m looking to collaborate on ...23586996xcvnhg265et,ui,uijhhdfs
+- sdsd62zcxfdvfffhgfgfbgbf5252159df
 - 📫 How to reach me ...d89999669weeghnghsdf8656efwgfbsss699ewwewwssshngbvvbn
 - weewffeewvbnvbvrtyterreeeghhjhghghgbgfgbgfvbn
-- 😄 Pronouns: ...15345677dsffdggdfzcxcvdsfdfscxcxxfgdfgfdvdfdfregrefdggre
+- 😄 Pronouns: ...15345677dsffdggdfzcxcvdsfdfscxcxxfgdfgfdvdfdfregrefdggredfg
 - ⚡ Fun fact: ...131254052211gbfnbb448dssasddfdvb
 dsf45sddsfsdf3554xcvvcxx5252+fdddbgfzxc
 <!---455sdffregfb96+996+v

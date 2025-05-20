@@ -1,7 +1,7 @@
 ffdsdfdsewqqewwqe5287fjg- 👋 Hi, I’m @decefere
-- 👀 I’m interested in ...
+- 👀 I’m interested in ...tynn
 - 🌱 I’m currently learning ...vdfddd
-- 💞️ I’m looking to collaborate on ...23586996xcvnhg265et,ui,uijhhdfs
+- 💞️ I’m looking to collaborate on ...23586996xcvnhg265et,ui,uijhhdfsnhggyt
 - sdsd62zcxfdvfffhgfgfbgbf5252159df
 - 📫 How to reach me ...d89999669weeghnghsdf8656efwgfbsss699ewwewwssshngbvvbn
 - weewffeewvbnvbvrtyterreeeghhjhghghgbgfgbgfvbn

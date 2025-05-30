@@ -1,5 +1,5 @@
 ffdsdfdsewqqewwqe5287fjg- 👋 Hi, I’m @decefere1526652
-- 👀 I’m interested in ...tynn
+- 👀 I’m interested in ...tynndfdfg
 - 🌱 I’m currently learning ...vdfddd
 - 💞️ I’m looking to collaborate on ...23586996xcvnhg265et,ui,uijhhdfsnhggytgbfgbvvvv
 - sdsd62zcxfdvfffhgfgfbgbf5252159df026hgnhgdsfdsfdsfds

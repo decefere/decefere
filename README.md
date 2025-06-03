@@ -4,7 +4,7 @@ ffdsdfdsewqqewwqe5287fjg- 👋 Hi, I’m @decefere1526652
 - 💞️ I’m looking to collaborate on ...23586996xcvnhg265et,ui,uijhhdfsnhggytgbfgbvvvv
 - sdsd62zcxfdvfffhgfgfbgbf5252159df026hgnhgdsfdsfdsfds
 - 📫 How to reach me ...d89999669weeghnghsdf8656efwgfbsss699ewwewwssshngbvvbn
-- weewffeewvbnvbvrtyterreeeghhjhghghgbgfgbgfvbn
+- weewffeewvbnvbvrtyterreeeghhjhghghgbgfgbgfvbnmj,.kl,jj
 - 😄 Pronouns: ...15345677dsffdggdfzcxcvdsfdfscxcxxfgdfgfdvdfdfregrefdggredfgyukykukyu
 - ⚡ Fun fact: ...131254052211gbfnbb448dssasddfdvb
 dsf45sddsfsdf3554xcvvcxx5252+fdddbgfzxc

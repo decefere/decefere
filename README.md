@@ -1,8 +1,8 @@
-ffdsdfdsewqqewwqe5287fjg- 👋 Hi, I’m @decefere1526652
+.lkl.ffdsdfdsewqqewwqe5287fjg- 👋 Hi, I’m @decefere1526652
 - 👀 I’m interested in ...tynndfdfgdww87654
 - 🌱 I’m currently learning ...vdfdddedes
 - 💞️ I’m looking to collaborate on ...23586996xcvnhg265et,ui,uijhhdfsnhggytgbfgbvvvv
-- sdsd62zcxfdvfffhgfgfbgbf5252159df026hgnhgdsfdsfdsfds
+- sdsd62zcxfdvfffhgfgfbgbf5252159df026hgnhgdsfdsfdsfdskl.
 - 📫 How to reach me ...d89999669weeghnghsdf8656efwgfbsss699ewwewwssshngbvvbn
 - weewffeewvbnvbvrtyterreeeghhjhghghgbgfgbgfvbnmj,.kl,jj
 - 😄 Pronouns: ...15345677dsffdggdfzcxcvdsfdfscxcxxfgdfgfdvdfdfregrefdggredfgyukykukyu

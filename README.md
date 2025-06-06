@@ -1,6 +1,6 @@
-.lkl.ffdsdfdsewqqewwqe5287fjg- 👋 Hi, I’m @decefere1526652
+.lkl.ffdsdfdsewqqewwqe5287fjg- 👋 Hi, I’m @decefere1526652798798798798
 - 👀 I’m interested in ...tynndfdfgdww87654
-- 🌱 I’m currently learning ...vdfdddedes
+- 🌱 I’m currently learning ...vdfdddedes97879
 - 💞️ I’m looking to collaborate on ...23586996xcvnhg265et,ui,uijhhdfsnhggytgbfgbvvvv
 - sdsd62zcxfdvfffhgfgfbgbf5252159df026hgnhgdsfdsfdsfdskl.
 - 📫 How to reach me ...d89999669weeghnghsdf8656efwgfbsss699ewwewwssshngbvvbn
